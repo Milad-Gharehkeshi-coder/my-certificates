@@ -12,12 +12,12 @@ Award Recipient: Milad Gharehkeshki
 
 Recognized Invention: *UV–Oxygen–Moisture Degradable Smart Plastic* — a concept focused on plastic degradation and environmental sustainability.
 
-![IFIA Bronze Award](ifia_certificate_Milad.jpg)
+![ifia_certificate_Milad](ifia_certificate_Milad.jpg)
 
 ### 🎖️ IFIA INV Title Holder
 Received an official certificate recognizing me as an IFIA INV title holder, acknowledging my involvement in the international invention and innovation community.
 
-![IFIA INV Title Certificate](ifia_inv_title.jpg)
+![ifia_inv_title](ifia_inv_title.jpg)
 
 ---
 
