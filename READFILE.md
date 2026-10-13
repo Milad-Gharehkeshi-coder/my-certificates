@@ -19,6 +19,7 @@ Received an official certificate recognizing me as an IFIA INV title holder, ack
 
 ![ifia_inv_title](ifia_inv_title.jpg)
 
+![ifia_inv_hologram_title](INV_membership.jpg)
 ---
 
 🌱 Interests: Invention, Innovation, Technology, Engineering, and Sustainable Development.
